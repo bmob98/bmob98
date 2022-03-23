@@ -1,4 +1,3 @@
-<img src="https://media-exp1.licdn.com/dms/image/D4D03AQHOSTyARyEbTw/profile-displayphoto-shrink_200_200/0/1637160788086?e=1653523200&v=beta&t=C-4hgshjcAb5rqFsvUV2LAWohrr44pdrWjJ9wUXDTa4">
 
 
 ### Olá 👋
